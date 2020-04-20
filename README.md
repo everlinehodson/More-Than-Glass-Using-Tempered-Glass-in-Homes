@@ -1,0 +1,2 @@
+# More-Than-Glass-Using-Tempered-Glass-in-Homes
+More Than Glass offer any homeowners that have children in their home incorrectly think that they must stay away from decorative glass, in case it should break and injure someone in the family. However, companies like More Than Glass have been using laminated and tempered glass in homes with children for decades, and our experts understand that safety is the number one priority - which is why we use safety glass in most homes.
